@@ -1,0 +1,1 @@
+Death to Khamenei and the Islamic Republic of Iran.  Fak Khamenei  Death to rubika.  Death to Islam and Iran and prayer.  Fak said to all the peoples of Iran, death to the army and Basij.  porn sex xxx porn .com xxx fuck
